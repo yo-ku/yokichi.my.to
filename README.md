@@ -1,2 +1,2 @@
-# yokichi.my.to
-in dev!
+# AmaZiNG sItE
+
